@@ -1,3 +1,3 @@
-# Guadalayians
+*Guadalayians<h1>tag
 The Guadalayians are an Indian/spanish decent from the Royal bloodline of Christ. The Guadalays were very close to the Aztec Indians The Aztec Indians considered them God's the serific lineage dates back to the Hebrew language. The serifimms or Cheribums protected the tree of life in the garden of Eden. They also protect the throne. The Aztecs were brutally slaughtered and there was seven pits which hold the seven folds of spirits which then they would return before the living to wake up the world. These seven folds of spirits would later represents the seven days it took God to create and rest.The seven fold spirits of God. The Aztec Codex was then later translated to the Voyerwich manuscript. This was the Aztec blood mingled with french. 
 
